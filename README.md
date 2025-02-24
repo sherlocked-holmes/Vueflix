@@ -35,4 +35,4 @@ Connect with me at Linkedin: https://www.linkedin.com/in/ricardo-vasconcelos/
 
 Also, you can use this Project as you wish!!
 
-It's free!
+It's completely free!
